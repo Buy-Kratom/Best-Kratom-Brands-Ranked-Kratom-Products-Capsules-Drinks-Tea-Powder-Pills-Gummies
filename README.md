@@ -5,7 +5,7 @@ Best Kratom Brand Guide Best Kratom Products: Capsules, Drinks, Tea, Powder, Pil
 
 | Rank | Brand               | Best Product                          | Best For                  | Price (Kilo) |  
 |------|---------------------|---------------------------------------|--------------------------|-------------|  
-| 1    | **[Krabot](https://www.krabot.com/)** | [Enhanced Maeng Da Powder](https://www.krabot.com/collections/kratom-powder) | Energy & Focus           | $152        |  
+| 1    | **[Krabot](https://www.krabot.com/)** | [Enhanced Maeng Da Powder](https://www.krabot.com/collections/kratom-powder) | Energy & Focus           | **Get 15% Off - Use Code: Github15**        |  
 | 2    | **[White Rabbit Energy](https://whiterabbitenergy.com/)** | [Energy Seltzer](https://whiterabbitenergy.com/collections/all) | Caffeine-Free Boost       | $14/can     |  
 | 3    | **Super Speciosa**  | [Signature Reserve](https://superspeciosa.com/products/signature-reserve) | Maximum Potency           | $140        |  
 | 4    | **Golden Monk**     | [Red Sumatra](https://www.goldenmonk.com/red-sumatra/) | Anxiety Relief            | $105        |  
