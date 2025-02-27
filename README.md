@@ -2,8 +2,8 @@
 Best Kratom Brand Guide Best Kratom Products: Capsules, Drinks, Tea, Powder, Pills, Gummies
 
 ### Table of Contents
-Best Kratom Brands 2025
-Best Kratom Powder 2025
+- Best Kratom Brands 2025
+- Best Kratom Powder 2025
 
 
 ## Finding the Best Kratom Brand & Products to Buy Online Can Be Hard
